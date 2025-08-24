@@ -59,7 +59,7 @@ Connect with us!
 
 **Zsofia Komaromi**: [Site](https://zsofia.pro) / [Threads](https://www.threads.net/@zsofia_kom) / [LinkedIn](https://www.linkedin.com/in/zsofiakomaromi/)
 
-**Divyanshu Dhruv**: [Site](https://divyanshudhruv.is-a.dev) / [LinkedIn](https://www.linkedin.com/in/divyanshudhruv/)
+**Divyanshu Dhruv `(contributor)`**: [Site](https://divyanshudhruv.is-a.dev) / [LinkedIn](https://www.linkedin.com/in/divyanshudhruv/)
 
 ## Become a Oncer
 
